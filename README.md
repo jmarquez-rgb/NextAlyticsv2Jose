@@ -1,1 +1,0 @@
-# NextAlyticsv2Jose
